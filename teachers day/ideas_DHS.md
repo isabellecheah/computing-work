@@ -1,12 +1,13 @@
-IDEAS FOR TEACHERS DAY
-## SUBJECTS
+# IDEAS FOR TEACHERS DAY
+### SUBJECTS
 - higher chinese: ms hon
      - xiao long bao (JC)
      - shi jian bu zao le (from the dian you)     
      - she sell porridge ahaha
-- geograpy: mr chan
+- geography: mr chan
      - scam (cruz)
      - basic services
+     - yee zhi kiasuparents account
 - science: mrs ong
      - R.I.P gummy bear :(
 - history: ms poh
